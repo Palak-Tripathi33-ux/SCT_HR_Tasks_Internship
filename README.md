@@ -1,10 +1,10 @@
 # SCT_HR_Tasks_Internship
 
-💼 HR Internship Portfolio — SkillCraft Technology
+💼 HR Internship Tasks — SkillCraft Technology
 
-Palak Tripathi | BBA Student | Human Resources Intern
+Palak Tripathi | Human Resources Intern
 
-June 1, 2026 – June 30, 2026 |(Remote)
+Duration - June 1, 2026 – June 30, 2026 |(Remote)
 
 👤 Profile Summary
 
