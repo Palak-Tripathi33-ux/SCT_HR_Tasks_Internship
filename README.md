@@ -10,7 +10,7 @@ June 1, 2026 – June 30, 2026 |(Remote)
 
 Detail-oriented BBA student with hands-on experience in end-to-end HR functions including talent acquisition, employee onboarding, performance appraisal, and workforce retention strategy. Passionate about building people-first workplaces through data-driven HR practices.
 
- Internship Overview
+Internship Overview
 
 SkillCraft Technology is a rapidly growing tech company dedicated to delivering data-driven solutions and innovative digital services. As an HR Intern within the Human Resources Department, I supported core HR operations including recruitment, intern onboarding, employee performance evaluation, and retention planning. This role provided direct exposure to real-world HR workflows across a hybrid and remote work environment.
 
@@ -145,5 +145,18 @@ Learned to balance data-driven decisions with human empathy in real HR scenarios
 Shifted from task-execution thinking to systems thinking across the full employee lifecycle.
 
 Strengthened professional writing, KPI design, and structured documentation skills.
+
+
+Drive Link (Task-1) - https://drive.google.com/file/d/19IoyCXwqMPMlD7kQaA7VwC1Sl3Pct1cb/view?usp=drivesdk
+
+
+Drive Link (Task-2) - https://drive.google.com/file/d/1MIdKKhjOXaTmvPJI3wVmZIDeTqwVWviq/view?usp=drivesdk
+
+
+Drive Link (Task-3) - https://drive.google.com/file/d/146TbKdhmr1CbyyTz--qxHV_iummCv8uE/view?usp=drivesdk
+
+
+Drive Link (Task-4) - https://drive.google.com/file/d/1nEowFEEdU-aOj6f9_zdNTPlZoR-d-1p-/view?usp=drivesdk
+
 
 Always open to connecting with like-minded people — feel free to reach out on LinkedIn - https://www.linkedin.com/in/palak-tripathi-37a56234a/
