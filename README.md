@@ -12,7 +12,7 @@ Detail-oriented BBA student with hands-on experience in end-to-end HR functions 
 
 Internship Overview
 
-SkillCraft Technology is a rapidly growing tech company dedicated to delivering data-driven solutions and innovative digital services. As an HR Intern within the Human Resources Department, I supported core HR operations including recruitment, intern onboarding, employee performance evaluation, and retention planning. This role provided direct exposure to real-world HR workflows across a hybrid and remote work environment.
+SkillCraft Technology is a rapidly growing tech company dedicated to delivering data-driven solutions and innovative digital services. As an HR Intern within the Human Resources Department, I supported core HR operations including recruitment, intern onboarding, employee performance evaluation, and retention planning. This role provided direct exposure to real-world HR workflows across a remote work environment.
 
 🎯 Core Competencies
 
